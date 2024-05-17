@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GirthyMeatloaf
-- 👀 I’m interested in video games, cars,
+- 👀 I’m interested in video games, cars
 - 🌱 I’m currently learning cyber security and coding
 - 💞️ I’m looking to collaborate on nothing atm
 - 📫 How to reach me ...
